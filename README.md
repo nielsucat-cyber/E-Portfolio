@@ -1,2 +1,0 @@
-# E-Portfolio
-MY PORTFOLIO FOR SCHOOL
